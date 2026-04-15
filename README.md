@@ -15,3 +15,9 @@ Download it and I created it myself, but please help me so I can make more updat
 ця заборона вам допоможе і буде оновлення але потім у вас буде всі заборони не працювати, а мій буде працювати 
 
 завантажуйте та я сам створив але будь ласка допоможи мені щоб я міг більше робити оновлення та ви мені допомагали та я бачив але я не інен
+
+Auf Deutsch:
+
+Diese Sperre wird dir helfen, und es wird Updates geben. Dann funktionieren aber all deine Sperren nicht mehr, meine aber schon.
+
+Lade sie herunter. Ich habe sie selbst erstellt, aber bitte hilf mir, damit ich weitere Updates machen kann. Du hilfst mir, und ich werde sehen, was passiert. Aber ich bin nicht unschuldig.
